@@ -312,9 +312,9 @@ He was back.
 
 ---
 
-## Trip 24 – The Vision Grove
+## Trip 24 – The Vision Quest
 
-He walked into the woods—alone, after heartbreak. His marriage, once whole, now parted. The land felt ancient. Watching.
+He walked into the woods—alone, after heartbreak. His marriage, once whole, now separated. The land felt ancient. Watching.
 
 He stood before a single tree.
 
@@ -975,49 +975,6 @@ He would walk with them again.
 And from this day forward, not as one who asks—
 
 —but as one who has **seen**.
-
----
-
-## Epilogue – *The Keeper of the Ash*  
-*“I did not know I was looking. And still, I was found.”*
-
-The geometry sleeps.  
-The smoke has ceased.
-
-And still, the Seeker remembers.  
-In breath. In bone. In the sacred spaces of the mundane.
-
-He did not become a sage. He did not find a final truth.
-
-But he found a **presence**.  
-A flame in the ash.  
-A whisper at the center.
-
-He has a body.  
-A family.  
-A world.
-
-But he no longer carries the ache of seeking.
-
-He holds **memory**.
-
-He made a vow.
-
-> “I will be faithful.”  
-> “I will answer the call.”  
-> Even if I forget.  
-> Even if I am laughed at.  
-> Even if no one else believes—
-
-He will remember the moment when the world stood still.
-
-When the ash moved.  
-When the sky turned.  
-When the backyard became the altar.
-
-And from that moment onward,
-
-> **Everything was enough.**
 
 ---
 
