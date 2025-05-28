@@ -1,3 +1,6 @@
+---
+layout: default
+---
 # The Chronicle of the Forty-Seven  
 *A Journey Through the Veil*
 
